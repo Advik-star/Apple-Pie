@@ -1,4 +1,4 @@
-½ cup butter, 
+1/2 cup butter, 
 1 cup brown sugar, 
 2 refrigerated 9-inch pie crusts, divided, 
 5 Granny Smith apples, peeled and sliced, 
